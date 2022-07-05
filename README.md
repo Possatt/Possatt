@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Possatt
-- 👀 I’m interested in develop a different skills
+- 👀 I’m interested in developing some different skills
 - 🌱 I’m currently learning computer science
 - 💞️ I’m looking to collaborate on Artificial Inteligence
 - 📫 How to reach me Instagram - @Pablostore; Facebook - Pablo Possatti; Twitter - @Pablopossatti
